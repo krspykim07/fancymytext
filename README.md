@@ -1,1 +1,1 @@
-# fancymytext.krspykim07.github.io
+# fancymytext
